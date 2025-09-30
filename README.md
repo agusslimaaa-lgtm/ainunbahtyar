@@ -1,2 +1,0 @@
-# ainunbahtyar
-ainunbahtyar
